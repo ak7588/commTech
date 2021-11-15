@@ -29,3 +29,5 @@ Again, was busy attending meetings and working on homework to check my phone. Go
 A full day of classes! Today I was responsible for sharing parts of my day on Instagram for my high school's student organization account as an alumni, so this took the majority of my day on social media. Managing it quite well without TikTok and am getting kind of tired of Instagram too.
 
 ## Nov 16
+
+Last day of the fast! Wow, time passed much quicker than I thought it would :D Although I still feel like downloading TikTok again (especially because I enjoy creating videos from time to time as well), I definitely feel less attachment to it. This prompted me to think if social media creators -- who make content as their job or people who do it just for fun -- would also benefit from taking time off? Normally, we wouldn't expect people to suddenly take breaks from their work, unless it's a holiday or a special leave, so does the same framework apply to creators and bloggers? 
